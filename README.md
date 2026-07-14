@@ -1,1 +1,1 @@
-https://t.me/jierry6109
+https://telegram.org/jierry6109
